@@ -21,4 +21,5 @@ Advertising inside ChatGPT stopped being speculation in February 2026 and is now
 *This is an independent page with no affiliation to OpenAI; all trademarks belong to their respective owners.*
 
 
+
 _Last reviewed: 2026-09-22_
